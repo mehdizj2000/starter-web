@@ -2,6 +2,15 @@
 
 This repository is for showing how Git and GitHub work
 
+
+##Introduction
+wdlufhsidfgasdyf
+
 ## Purpose
 
 Sample website with plenty of files for demos
+
+
+## How to contribute
+
+sdfgdfhghkhlk
