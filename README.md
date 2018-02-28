@@ -24,3 +24,4 @@ wefoiuwsfhsdfsd
 
 ##lsdhfkdfhgkldhgklj
 asfjkgsdfsdjkfgsdgsdjfgsjdfg
+All rights reserved
