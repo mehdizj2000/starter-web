@@ -18,7 +18,7 @@ sdfgdfhghkhlk
 ## Deployment
 srgkluhkguhdkfgh
 ##Copyrigth section
-dtg;kjdiuoghsdfjkghkdfg
+
 sdkjfhaskdjfhksajdfhkjsdhfk
 wefoiuwsfhsdfsd
 
